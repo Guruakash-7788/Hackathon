@@ -1,0 +1,1 @@
+Project X is a website designed to assist startups in evaluating their potential for success. This evaluation is likely based on various metrics such as financial indicators, market analysis, growth projections, and possibly other relevant factors. The website offers a comprehensive approach to helping startups gauge their viability and prospects in the business landscape.

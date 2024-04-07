@@ -1,0 +1,1 @@
+A lot of start-ups fail because they are made without accurate market information and future potential. An overwhelming number of entrepreneurs do not have this information. There is need for case analysis and data on sectors to start businesses.
